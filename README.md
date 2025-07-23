@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MrLynchIT
 - 👀 I’m interested in helping students reach their potential
-- 🌱 I’m currently learning as much as i can
+- 🌱 I’m currently learning as much as I can
 - 💞️ I’m looking to collaborate on educating students
 
 
